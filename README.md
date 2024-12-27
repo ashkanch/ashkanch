@@ -1,12 +1,9 @@
 - 👋 Hi, It’s @ashkanch
+- Studying Industrial Engneering
+Always looking for new things and keep learning.. 
 
-- 🌱 I’m currently learning
+Any criticism of you is your honest purpose! :)
 
-- 
-- 📫 How to reach me: cheshashkan2007@gmail.com
-- 
-Any criticism of you is your love so just tell me any mistake :)
-<!---
-ashkanch/ashkanch is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- How to reach me: cheshashkan2007@gmail.com
+
+
